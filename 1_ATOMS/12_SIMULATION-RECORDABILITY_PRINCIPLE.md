@@ -1,0 +1,1 @@
+[[CONSCIOUSNESS]] (as [[IIT]] [[GEIST]]) is fundamentally a [[PATTERN]] of [[INTEGRATED_INFORMATION]]. Therefore, it is _in principle_ [[RECORDABLE]], [[QUANTIFIABLE]], [[DUPLICATABLE]], or [[SIMULATABLE]] (Consequence of [[03_CONSCIOUSNESS_AS_SPECTRUM]] & [[04_EGO_AS_GEIST]]). Connects to [[11_INFORMATION_AS_SUBSTANCE]] and [[27_AI_AS_ARTIFICIAL_GEIST]].

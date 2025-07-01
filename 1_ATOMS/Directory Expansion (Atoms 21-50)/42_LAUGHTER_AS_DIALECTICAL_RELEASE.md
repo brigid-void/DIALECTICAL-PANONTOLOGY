@@ -1,0 +1,1 @@
+[[HUMOR]] erupts from [[COLLAPSED_CONTRADICTIONS]]. The [[COMIC]] embodies sudden [[NONDUAL_FLOW]] where [[OPPOSING_CONCEPTS]] annihilate into [[ABSURD_UNITY]]. Connects to [[02_NONDUAL_ONTOLOGY]] and [[42_LAUGHTER_AS_DIALECTICAL_RELEASE]].

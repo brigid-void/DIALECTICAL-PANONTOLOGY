@@ -1,0 +1,1 @@
+placeholder, but basically Abrahamic faiths are materially compatiblised into a form of humanism of hyperstitional "lesser gods" via DIALECTICAL-PANONTOLOGY.

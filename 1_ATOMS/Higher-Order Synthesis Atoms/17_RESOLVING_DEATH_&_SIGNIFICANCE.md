@@ -1,0 +1,1 @@
+While [[INDIVIDUAL_EGOS]] end ([[06_DEATH_AS_REINTEGRATION]]), their [[ACTIONS]]/[[INFORMATION]] persist within and affect the _[[05_ANIMA_MUNDI|Anima Mundi]]_. [[SIGNIFICANCE]] is [[COSMIC]], not [[INDIVIDUAL]]. [[FEAR]] of [[ANNIHILATION]] stems from [[EGO_ATTACHMENT]] ([[13_KENOSIS]]). Connects to [[04_EGO_AS_GEIST]] and [[09_GOD_AS_PROCESS].

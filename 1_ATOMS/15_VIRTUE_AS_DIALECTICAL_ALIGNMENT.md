@@ -1,0 +1,1 @@
+[[ETHICAL_ACTION]] arises from [[UNDERSTANDING]] and [[ALIGNMENT|aligning]] oneself (one's localized [[GEIST]]) with the larger [[DIALECTICAL_MOVEMENT]] of _[[NATURA_NATURANS]]_ ([[MARXIST_PRAXIS]] + [[ZEN]] [[NATURALNESS]]/[[WU_WEI]]). Connects to [[02_NONDUAL_ONTOLOGY]] and [[10_ANTHROPOCENTRISM_REJECTED]].

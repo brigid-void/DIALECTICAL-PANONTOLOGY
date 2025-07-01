@@ -1,0 +1,1 @@
+The "[[07_ADAPTIVE_TUNNEL_VISION|tunnel vision]]" of the [[EGO_GEIST]] creates the _[[ILLUSION]]_ of [[SEPARATION]] from the _[[05_ANIMA_MUNDI|Anima Mundi]]_. Actual [[NONDUAL_CONNECTION]] is [[FUNDAMENTAL]]; [[BLINDNESS]] is [[FUNCTIONAL]] but [[CONTINGENT]]. Connects to [[02_NONDUAL_ONTOLOGY]] and [[04_EGO_AS_GEIST]].

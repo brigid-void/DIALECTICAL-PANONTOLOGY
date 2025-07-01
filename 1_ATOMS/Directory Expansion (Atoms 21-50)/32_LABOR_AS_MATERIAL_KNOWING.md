@@ -1,0 +1,1 @@
+[[HUMAN_WORK]] constitutes the [[UNIVERSE]] comprehending itself through [[TRANSFORMATIVE_ACTION]]. [[MARX]]'s [[LABOR_THEORY]] elevated to [[COSMIC_EPISTEMOLOGY]] – [[HANDS]] as organs of [[WORLD_SOUL]]'s [[SELF_DISCOVERY]]. Connects to [[01_DYNAMIC_MATERIALISM]] and [[29_PRAXIS_ALIGNMENT_WITH_COSMIC_UNFOLDING]].
