@@ -65,8 +65,6 @@ This bridges Buddhist emptiness with modern physics - your "self" is a temporary
 
 ---
 *"Not a philosophy to believe, but a lens to see through - then put down."  
-Last updated: [current date]*  
-
 [ [Core Terms] ] [ [Beginner Path] ] [ [Academic Version] ]  
 
 This version:  
