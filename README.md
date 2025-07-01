@@ -64,7 +64,8 @@ This bridges Buddhist emptiness with modern physics - your "self" is a temporary
 3. **Contribute**: These ideas grow through real-world testing
 
 ---
-*"Not a philosophy to believe, but a lens to see through - then put down."  
+"Not a philosophy to believe, but a lens to see through - then put down." 
+
 ---
 
 # Dialectical Panontology: An Integrated Summary
