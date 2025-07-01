@@ -60,19 +60,11 @@ This bridges Buddhist emptiness with modern physics - your "self" is a temporary
 ## How to Engage
 
 1. **Start Simple**: Read [[DYNAMIC_MATERIALISM]] and [[EGO_AS_GEIST]] first
-2. **Follow Your Interest**: Use the wikilinks to dive deeper
+2. **Follow Your Interest**: Use the wikilinks to dive deeper; download the repository, then install Obsidian.md and assign the repository/folder structure base as your 'vault' for obsidian, this way you can view the graph connections and use the wikilinks.
 3. **Contribute**: These ideas grow through real-world testing
 
 ---
 *"Not a philosophy to believe, but a lens to see through - then put down."  
-[ [Core Terms] ] [ [Beginner Path] ] [ [Academic Version] ]  
-
-This version:  
-- Uses concrete metaphors (whirlpool, fire)  
-- Minimizes jargon  
-- Shows practical value  
-- Offers multiple entry points  
-- Maintains depth through linking system
 ---
 
 # Dialectical Panontology: An Integrated Summary
